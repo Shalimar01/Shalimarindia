@@ -1,0 +1,2 @@
+# Shalimarindia
+Turmeric is an essential element in Indian culture for various household activities. It's no longer just for eating; Indians also use it for religious purposes. Doctors, on the other hand, prescribe it since turmeric's therapeutic properties are unparalleled in the human body.  Shalimar's Chef Turmeric Powder is the ideal choice for you if you're looking for the greatest and most trustworthy turmeric powder. It's 100 percent natural and it adds just the proper amount of colour with an immunity-boosting flavour.
